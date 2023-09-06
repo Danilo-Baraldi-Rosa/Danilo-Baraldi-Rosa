@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Sobre mim:
 Formado como Tecnico em Edificações, em transição de carreira para área da tecnologia.<br>Estudante de Analise e Desenvolvimento de Sistemas, busco oportunidade de estagio.
 
 
